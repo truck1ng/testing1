@@ -1,1 +1,2 @@
-gang wale munde
+gang wale munde 
+ek baari or
